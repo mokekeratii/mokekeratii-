@@ -17,6 +17,10 @@ Qenehelo continues to work as a freelance **therapist and psychologist**, offeri
 > With a clear commitment to healing and transformation, **Qenehelo is a rising voice in African mental health and HIV/AIDS advocacy and social work.**
 
 ---
+### 🔗 Connect with Me
+- 🌐 [My Blog: Rising with Purpose](https://medium.com/@qenehelo.ratii/rising-with-purpose-my-journey-as-a-mental-health-advocate-in-southern-africa-5cdd2bb163c5)
+- 📫 mokeke.ratii@gmail.com
+- 🔗 [LinkedIn Profile](https://linkedin.com/in/mokekeratii)
 
 ## 📫 Contact
 
